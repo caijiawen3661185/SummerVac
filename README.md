@@ -1,1 +1,1 @@
-$$ [±ÈÈüµØÖ·](http://ccf-cccv.org/2017/competition2/)
+## [æ¯”èµ›åœ°å€](http://ccf-cccv.org/2017/competition2/)
